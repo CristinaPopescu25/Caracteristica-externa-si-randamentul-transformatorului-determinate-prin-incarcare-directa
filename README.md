@@ -1,0 +1,1 @@
+# Caracteristica-externa-si-randamentul-transformatorului-determinate-prin-incarcare-directa
